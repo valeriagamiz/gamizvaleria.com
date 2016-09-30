@@ -1,7 +1,7 @@
 # valeriagamiz.ca
 ## portfolio
 
-Ever since I was little I was very into colours and type. Always look into details, always trying to stand out in design when doing homework. I’ve always had that passion on me and that’s why I’d like to inspire people of doing what they love.
+Ever since I was little I was very into colours and type. Always looked into details, always trying to stand out in design when doing homework. I’ve always had that passion on me and that’s why I’d like to inspire people of doing what they love.
 
 I believe that design must be beautiful and useful that’s why I commit to my work for me to help you to reach your goal.  Design is not just about colours, is about how you want people to perceive your brand. I want people to feel comfortable about their identity and I’m here to make that happen.
 
